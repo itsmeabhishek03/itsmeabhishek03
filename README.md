@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **abhimishraop08@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/19VQ_IhBUTwqzHYvMNJt-4K-Go6fgt1tV/view?usp=sharing](https://drive.google.com/file/d/19VQ_IhBUTwqzHYvMNJt-4K-Go6fgt1tV/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1Sn0_pOs_NC0TTqA38ugEwr-BIAlSVeTM/view?usp=sharing](https://drive.google.com/file/d/1Sn0_pOs_NC0TTqA38ugEwr-BIAlSVeTM/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
